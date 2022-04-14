@@ -30,3 +30,6 @@
 ![374827-dark-wolf-wallpaper](https://user-images.githubusercontent.com/94144653/163427969-c620c1c9-f0c3-454d-bb39-c4da1235c8ba.jpg)
 
 ![Dkv1A0q](https://user-images.githubusercontent.com/94144653/163428157-9243a637-2e3f-425a-ae8b-af0bb465e7d3.png)
+
+![1630924293153_2](https://user-images.githubusercontent.com/94144653/163428387-9e7331ec-ebcb-4936-8a9a-1c1774889010.jpg)
+
