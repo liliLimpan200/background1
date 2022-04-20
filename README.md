@@ -37,6 +37,8 @@
 
 ![Ofrälse](https://user-images.githubusercontent.com/94144653/164196405-b568b8dd-0eee-4903-b805-c73c231391c9.jpg)
 
+![Ofrälse(1)](https://user-images.githubusercontent.com/94144653/164196678-8a80b230-2bdd-4a86-a2ce-6e4242fd3ac9.png)
+
 
 ![wallpapersden com_minecraft-dungeons_1680x1050](https://user-images.githubusercontent.com/94144653/163803860-b20d94e1-ea1e-4f2f-8966-0a37384ba881.jpg)
 
