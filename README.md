@@ -33,6 +33,7 @@
 
 ![1630924293153_2](https://user-images.githubusercontent.com/94144653/163428387-9e7331ec-ebcb-4936-8a9a-1c1774889010.jpg)
 
+![Como-agregar-amigos-en-Discord](https://user-images.githubusercontent.com/94144653/164195765-e12f17c1-bb8c-4682-9a04-dc5510faadba.png)
 
 
 
