@@ -35,6 +35,7 @@
 
 ![Como-agregar-amigos-en-Discord](https://user-images.githubusercontent.com/94144653/164195765-e12f17c1-bb8c-4682-9a04-dc5510faadba.png)
 
+![Ofrälse](https://user-images.githubusercontent.com/94144653/164196405-b568b8dd-0eee-4903-b805-c73c231391c9.jpg)
 
 
 ![wallpapersden com_minecraft-dungeons_1680x1050](https://user-images.githubusercontent.com/94144653/163803860-b20d94e1-ea1e-4f2f-8966-0a37384ba881.jpg)
